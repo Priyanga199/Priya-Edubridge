@@ -1,2 +1,2 @@
-# Priyu
+# Priya/Edubridge Learner
 Newbiee
